@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @smirnxff
+- 👀 I’m interested in cyber security and pen testing
+- 🌱 I’m currently learning fundamentals of security and computer science
+- 💞️ I’m looking to collaborate on any begineer friendly projects
+- 📫 How to reach me: DISCORD - smirnoff#0001
